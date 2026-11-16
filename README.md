@@ -1,0 +1,1 @@
+# danny-closet-email-assets
